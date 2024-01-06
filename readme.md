@@ -1,3 +1,3 @@
 # Furry VN guide
-##Now with extra chocky.
+## Now with extra chocky.
 *Coming soon*
